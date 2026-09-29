@@ -1,0 +1,1 @@
+This project is simply practice for future github projects. And for some reason you're even seeing this... Then good afternoon good evening and good night.
